@@ -1,11 +1,15 @@
-欧易，币安，火币容易风控，建议这个交易所
+**### 什么是翻墙**
 
-![30a08ae6b637928870f329d5a28f560b](https://github.com/user-attachments/assets/198e10ac-80ba-4b6e-a344-d5fb58f01ebd)
+        突破网络审查或突破网络封锁，在中国大陆俗称翻墙、科学上网、魔法上网、破网、爬梯子等，是指通过技术方式绕过网络审查的措施。
 
-![d7867ed0aedfa30b26f241e4e96174a5](https://github.com/user-attachments/assets/5976976b-051a-4795-9f2b-a5f068d2abd1)
+👉🏻梯子推荐[性价比高](https://xn--4gq62f.com/#/register?code=pkLmk4KO)
+教程以此为例
+**注册后登录至首页**
 
-![79a7285432014638cae8c2254ffbc16c](https://github.com/user-attachments/assets/35cf5568-6b6e-46eb-8d4a-47bdf54b1df8)
+![E469A0929F66EFFA41C0BFD90D7BDA1C](https://github.com/user-attachments/assets/d17d5d03-4695-4fa3-92c3-5bcdc67f2685)
 
-![8fe10d1968f7b06a51f67f9aa2b2668b](https://github.com/user-attachments/assets/2817ad3f-32e4-4df4-a006-a70c1ee4f72d)
 
-![745b0a3e499fef6957ba0fa55ae0db85](https://github.com/user-attachments/assets/6eb0ce92-7034-42c9-ad54-1860d7463bc3)
+**左上角**
+![435ED3DF99BCB0593322BBB5AD6CA617](https://github.com/user-attachments/assets/e3bf1fc6-3dec-40be-a2d2-23f12ba0d561)
+
+![53B4E948ADBEF5B9CFD72DF925F43AA6](https://github.com/user-attachments/assets/925ad88e-ab19-42ab-b526-24fc4c88a948)
